@@ -1,1 +1,2 @@
-discord -> Swifz#2391
+discord username -> Swifz
+Steam -> steamcommunity/id/TheRealSwifz
