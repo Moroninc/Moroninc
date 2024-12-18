@@ -1,2 +1,2 @@
-discord username -> Swifz' <br/>
+discord username -> Swifz <br/>
 Steam -> steamcommunity/id/TheRealSwifz
